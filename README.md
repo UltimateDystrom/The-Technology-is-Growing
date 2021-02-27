@@ -9,5 +9,6 @@ Technology is joining more and more with social life, work and daily life. In th
 In Social Life We can see that People hate not talking with their friends, nowadays, It is common to see that many friendships that we have are based on internet communication, People often decide to communicate on Whatsapp, Facebook Messenger, etc.
 Most of the endurable friendships have a big communication on social media. It’s funny that many companies tried to invite us to use the messages on our phones, but we loved calling our friends every time, then, in the 10’s the companies wanted to convince us by free calls but we prefered sending messages by Whatsapp, Messenger, Telegram, etc. 
 I’m not saying that the number of users have been decreasing on these message platforms, but you can see that many people prefer to have video calls these days, and the reason is obvious: COVID-19. On the Applications stores for smartphones we see that many apps that are for video calling or other ones that you can use to have fun with your friends in your home (Zoom, Discord, Google Meet, etc.) are at the top.
+
 <img src="https://resize.indiatvnews.com/en/resize/newbucket/1200_-/2020/07/video-calling-apps-1594899838.jpg" alt="A draw of people on a video call" width="600" height="335">
 
