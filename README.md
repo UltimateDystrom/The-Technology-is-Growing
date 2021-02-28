@@ -12,7 +12,7 @@ I’m not saying that the number of users have been decreasing on these message 
 
 <img src="https://resize.indiatvnews.com/en/resize/newbucket/1200_-/2020/07/video-calling-apps-1594899838.jpg" alt="A draw of people on a video call" width="600" height="335">
 
-The work. It is a good example of the evolution of our daily activities, that’s why in our history we had industrial revolutions. But, Nowadays We can see that technology is so important that we can’t do many activities or tasks with it. As we see in social life, it’s so necessary for this technology to do many tasks that we can do in our homes. The Government decided to send many workers to their homes to keep them safe of the disease, and, obviously, the workers began using the technology, with the new softwares and programs that have been developing we can use many tools and do activities for our work even better. 
+The work. It is a good example of the evolution of our daily activities, that’s why in our history we had industrial revolutions. But, nowadays we can see that technology is so important that we can’t do many activities or tasks with it. As we see in social life, it’s so necessary for this technology to do many tasks that we can do in our homes. The Government decided to send many workers to their homes to keep them safe of the disease, and, obviously, the workers began using the technology, with the new softwares and programs that have been developing we can use many tools and do activities for our work even better. 
 
 <img src="https://storage.googleapis.com/nextivawebsites-wordpressfiles-voip/var/www/virtual/nextiva.com/voip/2018/08/working-from-home-tips-feature-image-1200x675.png" alt="A draw of a person using his computer inside his home" width="600" height="335">
 
