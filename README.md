@@ -16,6 +16,12 @@ The work. It is a good example of the evolution of our daily activities, that’
 
 <img src="https://storage.googleapis.com/nextivawebsites-wordpressfiles-voip/var/www/virtual/nextiva.com/voip/2018/08/working-from-home-tips-feature-image-1200x675.png" alt="A draw of a person using his computer inside his home" width="600" height="335">
 
+So we saw in this article, the technology is so important for our lives and we will continue using it for our daily activities, it's prudent to consider giving us a “relax time” of all this technology, the technology is not bad, many people say that it could be hazardous or it’s a part of a sinister plan to control our lives, and they hate using it or see people using it. But the technology is not bad, just that we have to check our times and don’t over using it, yes, maybe you have to use it for your work or school, but sometimes when you’ve finished your activities you can stand up of your chair and talk with your family, read a book, explore the nature, look for a hobby, remember, the technology doesn’t control your life. 
+
+# About me
+Thank you for reading this! I'm an english student in the Harmon Hall Institute, I love playing violin, maths and programming! You can check out my Github account: [UltimateDystrom](https://github.com/UltimateDystrom) and my Instagram profile: [@dylanhdezrojas](https://www.instagram.com/dylanhdezrojas/?hl=es-la). 
+
+
 
 
 
